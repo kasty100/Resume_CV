@@ -1,4 +1,4 @@
 # Resume_CV
 
-[Kaustubh_Pingalkar_Scaler_ CV.pdf](https://github.com/kasty100/Resume_CV/files/15444846/Kaustubh_Pingalkar_Scaler_.CV.pdf)
 
+![cv](https://github.com/kasty100/Resume_CV/assets/49535032/a77f4d45-6b4d-4d78-bb8f-290a7af01180)
